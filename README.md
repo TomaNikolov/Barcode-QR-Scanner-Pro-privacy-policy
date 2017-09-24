@@ -1,1 +1,1 @@
-# Barcode-QR-Scanner-Pro-privacy-policy
+# Barcode & QR Scanner Pro privacy policy
